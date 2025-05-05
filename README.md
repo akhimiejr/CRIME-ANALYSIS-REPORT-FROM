@@ -84,6 +84,37 @@ This project successfully analyzed crime data in Los Angeles, providing insights
 
 Appendix 1.
 
+![image](https://github.com/user-attachments/assets/f708529f-4379-4a5b-96f9-c75c8d1a6bc7)
+
+Appendix 2. 
+
+![image](https://github.com/user-attachments/assets/c9015a77-f5e9-4531-a1cf-77e6ea79ad3c)
+
+Appendix 3.
+
+![image](https://github.com/user-attachments/assets/38bf681a-8a83-426e-add7-7e5947bf2a23)
+
+Appendix 4.
+
+![image](https://github.com/user-attachments/assets/09a69133-a2ae-40f5-a11d-f78e5fcfe9db)
+
+Appendix 5. 
+
+![image](https://github.com/user-attachments/assets/4cfb62e9-ddc7-49c2-9913-285ab3a780fd)
+
+Appendix 6.
+
+![image](https://github.com/user-attachments/assets/ccd55ae2-2318-4495-8ac3-90cd54e12120)
+
+Appendix 7. 
+
+![image](https://github.com/user-attachments/assets/3f77a70b-11d9-475c-b497-1af41f6c4422)
+
+
+Appendix 8.
+
+
+
 
 
 
